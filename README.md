@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Amna  
 
-🎯 **Aspiring Data Scientist | Lifelong Learner | Open-Source Enthusiast**  
+🎯 **Aspiring Data Analyst | Lifelong Learner | Open-Source Enthusiast**  
 
 ---
 
