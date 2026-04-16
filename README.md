@@ -22,7 +22,7 @@
 
 ## 🌐 Connect with Me  
 - ✉️ Email: [amnadatasense@gmail.com](mailto:amnadatasense@gmail.com)
-- 💼 LinkedIn: [https://www.linkedin.com/in/amna-08302133b/](https://www.linkedin.com/in/amna-08302133b/)
+- 💼 LinkedIn: [https://www.linkedin.com/in/amna-08302133b/](https://www.linkedin.com/in/amnaamna1/)
 
 ---
 
